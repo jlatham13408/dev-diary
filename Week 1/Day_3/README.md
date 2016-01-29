@@ -1,3 +1,5 @@
-Review:  Worked on Project Structure.  I am feeling more comfortable with the working on my own with project structure.  I am learning to rely more on what I can research on Google.  
+Reflect:  Today, Thursday, 1/21/2016 is the third day, but the 2nd day in the lesson.  We have learned so much over the past three days.  I am still understanding a lot, but I feel with more practice I could master the project structure.  I will practice this until it becomes natural to me so I don't have to keep looking at my notes.  This is my assignment for this weekend.
 
-Reflect:  Sean from the last class stopped by to show us some of things he was working on.  He use to fix musical instruments before coding class.  He only had practice material before starting class.  He starting working immediately after the class.  He contributed his success with his ambition in finding a job.  I am more confident today in my abilities to resolve issues, which is a great thing!
+Review: We went through understanding the project structure.  We worked in teams and then had to try on our own.  I enjoyed that because it made me learn a lot by trial and error.
+
+Looking forward to the coming days!
